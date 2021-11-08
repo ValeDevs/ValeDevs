@@ -1,1 +1,1 @@
-ben nova ve squez
+Vale
